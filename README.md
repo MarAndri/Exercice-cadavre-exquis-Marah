@@ -18,8 +18,11 @@ La limace, abassourdie par cet OVNI qui failli la découper s'étonna?
 
 - *Est-ce le Dieu limace qui nous envoi un message?*
 
+- * Non... je suis juste aussi adroit qu'un âne répondit Chicorne.
+
 
 
 
 # Bug?!
 *Si tu vois un oiseau blanc sur le lac, c'est un signe.* Mais peu de chance de voir le lac des cygnes sans **balais**. Apparemment dans tous les opéras `grouillent` des petits rats.
+
