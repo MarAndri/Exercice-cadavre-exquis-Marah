@@ -10,5 +10,16 @@ Chicorne rencontra chicarne.
 
 Ce jeu appelé *Chichocarnecorne* consistait à lancer une paire de ciseaux dans les airs afin qu'elle retombe sur une limace. La limace, si elle est coupée dans le sens de la longueur donne 8 points au lanceur. Si elle est coupée latéralement, le lanceur doit se suicider.
 
+Chicorne lança une première fois les ciseaux. Ces derniers tombèrent à proximité d'une limace, sans la couper.
+
+- **ZUUUUUUUUUUUUUUUUUUUUUUT**
+
+La limace, abassourdie par cet OVNI qui failli la découper s'étonna?
+
+- *Est-ce le Dieu limace qui nous envoi un message?*
+
+
+
+
 # Bug?!
 *Si tu vois un oiseau blanc sur le lac, c'est un signe.* Mais peu de chance de voir le lac des cygnes sans **balais**. Apparemment dans tous les opéras `grouillent` des petits rats.
